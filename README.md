@@ -3,16 +3,12 @@ Company Name:
     Xmpler Ventures Pvt. Ltd.
 
 Mission:
-    Strive to bring next frontier sustainable energy solutions and next frontier digital technologies to our partners.
+    check website https://xmplerventures.com
 
 Values:
-    Collaboration.
-    Authenticity.
-    Sustainability.
-    Innovation.
-    Creation.
+    check website https://xmplerventures.com
 
 Company's tagline:
-    Accelerating sustainable abundance
+    check website https://xmplerventures.com
 
 Company Contact No: +91 9995456233
